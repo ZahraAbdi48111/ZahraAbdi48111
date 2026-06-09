@@ -15,7 +15,6 @@ I am passionate about bridging the gap between education and technology. Current
 ### 📫 Let's Connect
 I'm always open to discussing new ideas, projects, or collaborations. Feel free to reach out:
 - 📧 **Email:** [zahraabdimilanlu48111@gmail.com](mailto:zahraabdimilanlu48111@gmail.com)
-- 🔗 **LinkedIn:** [Add your link here]
 
 ---
 *"Technology is not a replacement for learning; it's a powerful tool to enhance it."*
